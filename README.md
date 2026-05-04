@@ -2,7 +2,7 @@
 <img width="1877" height="656" alt="image" src="https://github.com/user-attachments/assets/e35f92ae-a8c0-4003-8781-2b57d04930d4" />  枝波
 
 ㅤ੭୧ㅤ𓈒ㅤㅤㅤㅤI strictly only ship Bootgenti / Argenthill, any other ships of them make me uncomfortable so DNI (especially Rbhl) .
-ㅤㅤㅤㅤ  ㅤㅤㅤI accept interactions if it's platonic! Other ships of my ponies are allowed (as long as it's not problematic). Galaxyㅤㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ  PLEASE interact!! /platonic
+ㅤㅤㅤㅤ  ㅤㅤㅤI accept interactions if it's platonic! Other ships of my ponies are allowed (as long as it's not problematic). Galaxyㅤㅤㅤㅤ  ㅤㅤㅤ  ㅤㅤㅤ  PLEASE interact!! /platonic - also I'm esp/eng
 
 ㅤ୧੭ㅤ𓈒ㅤㅤㅤㅤC + H and interacting are always welcome as long as the intentions aren't weird. Sometimes might be afk. Sometimesㅤㅤ ㅤI'm awkward when socializing because I don't know what to say and my social battery is low, but actions are enough for me.
 
